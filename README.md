@@ -1,3 +1,1 @@
-특징 : 빅테크(Google, AWS, Nvidia)의 열렬한 신봉자
-/ 취미 : 만화 비평, 고전문학 독서, 롤[다이아], 뉴스 보기
-/ 진로 전망 예상 : AWS 솔루션 아키텍트 (변경 가능)
+24 at the Department of Computer Science and Engineering, Pusan National University
